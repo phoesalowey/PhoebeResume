@@ -9,4 +9,7 @@
 
 [Pomona College](https://www.pomona.edu/), BA in Geology 2018-2022
 
+### Reseaerch Interests
+
+I am interested in the interplay between the hydrosphere and the atmosphere. I love forams.
 

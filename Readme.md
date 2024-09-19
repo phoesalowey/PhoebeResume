@@ -1,5 +1,5 @@
 # Phoebe Salowey
-<br>![Me](grad-photos-9513.jpg)
+<br>![Me](~phoesalowey/PhoebeResume/grad-photos-9513.jpg)
 
 ## Education
 
